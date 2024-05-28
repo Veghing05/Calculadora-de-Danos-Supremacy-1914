@@ -1,0 +1,1 @@
+# Calculadora-de-Danos-Supremacy-1914
